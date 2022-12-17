@@ -1,0 +1,6 @@
+Facebook :-
+ Basically this app is good for old people who find it difficult to buy a product online, Facebook helps them a lot therefore it is beneficial for old aged people but all the youths have been transferring lately on to Insta or other social media platforms. This is because Facebook was getting overrated according to people so therefore youngsters changed to  Instagram. Facebook was very old fashioned and had all the old programs which was now very indulgent Facebook  didn’t focus on it and too it was not there fault it was Mark Zuckerberg who gave the command to not give new features  for example the reel section is very complicated the features on it are also very difficult to find. Settings are located on very complicated sides all old aged parents or people have to look a person who is a new person on Facebook but knows about it where are all the settings. The account settings also have faults like not updating no verification of a person is required. 
+
+SOLUTION:-
+
+First of all the main problem that is the attraction which can be done by just a lil bit of technology. They can advertise about it give new attracting points which could be very indulgent for the youth. Give various tabs on the left panel of the app were all the settings related to accounts, profile, archived stories, drafts e.t.c. 
